@@ -1,2 +1,2 @@
 # CV_Gai-Jingze
-Repository of my CV and other related documents
+Hi, I am still trying to build up my first homepage. Before my homepage is available, I'll put my CV, transcripts and other related documents here for reference.
